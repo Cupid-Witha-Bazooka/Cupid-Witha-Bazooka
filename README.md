@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on basic understanding of coding
 - 📫 How to reach me crash_an_burn@icloud.com
 - 😄 Pronouns: Marine
-- ⚡ Fun fact: i'm self taught a year and a half ago. I couldn't get on a zoom meeting from lack of computer knowledge.
+- ⚡ Fun fact: I'm self taught a year and a half ago. I couldn't get on a zoom meeting from lack of computer knowledge.
 
 <!---
 Cupid-Witha-Bazooka/Cupid-Witha-Bazooka is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
