@@ -2,7 +2,7 @@
 - 👀 I’m interested in anything Tec AI, Gpt4o
 - 🌱 I’m currently learning linux
 - 💞️ I’m looking to collaborate on basic understanding of coding
-- 📫 How to reach me crash_an_burn@icloud.com
+- 📫 How to reach me one_shot_1776@iCloud.com 
 - 😄 Pronouns: Marine
 - ⚡ Fun fact: I'm self taught a year and a half ago. I couldn't get on a zoom meeting from lack of computer knowledge.
 
